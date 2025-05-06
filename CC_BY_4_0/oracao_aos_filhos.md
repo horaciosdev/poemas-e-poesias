@@ -14,7 +14,9 @@ Que o diabo não existe,
 E que o Pai não está vendo tudo o que eles fazem.  
 Mas que se eles chamarem, o senhor vai estar lá para eles.  
 
-Pai amado, eles são só crianças  
+Pai amado, diz pra eles pai,  
+Que você não está julgando agora,  
+Eles são apenas crianças.  
 Eles não sabem o que fazem...  
 Diz-lhes, pai, que mesmo que eles sejam diferentes,  
 Eles não vão para o inferno.  
